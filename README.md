@@ -74,7 +74,7 @@ This project can be easily deployed using platforms like:
 ## 📞 Contact
 
 - Instagram: https://instagram.com/metalp.ofc
-- WhatsApp: https://wa.me/5548998677919
+- WhatsApp: https://wa.me/5548996889778
 
 ---
 
